@@ -1,1 +1,2 @@
-# BSIS-Corpuz-Ashtynn-Dionne---Activities
+Ashtynn Dionne M. Corpuz
+BSIS - 1
